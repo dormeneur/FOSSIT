@@ -1,4 +1,2 @@
 # FOSSIT
-
-hi
-hwfbfbwjhefwejhfe
+preparation for an upcoming event.
